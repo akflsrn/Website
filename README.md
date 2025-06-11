@@ -1,2 +1,0 @@
-# Website
-Photography Personal Website
